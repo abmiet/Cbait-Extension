@@ -1,2 +1,2 @@
 # Cbait-Extension
-Please keep patience will be uploaded soon
+Please keep patience code will be uploaded soon
